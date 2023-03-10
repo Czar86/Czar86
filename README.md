@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with nothing atm...
 - 💬 Ask me about anything.
 - 📫 How to reach me: a.pepraameyaw@gmail.com
-- ⚡ Fun fact: Military background.
+- ⚡ Fun fact: Self proclaimed best strategy gamer alive.
